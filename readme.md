@@ -1,5 +1,5 @@
 
-[![wowowowowoww](https://imgur.com/SjujE23)]([https://](https://www.twitch.tv/uyv)
+[![wowowowowoww](https://imgur.com/SjujE23.png)](https://www.twitch.tv/uyv)
 <h6 aligh="right">
 wowwwowwow
 </h6>
